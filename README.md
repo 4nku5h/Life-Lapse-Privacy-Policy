@@ -1,1 +1,0 @@
-# Life-Lapse-Privacy-Policy
